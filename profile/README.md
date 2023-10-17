@@ -1,1 +1,1 @@
-
+Bem vindo à organização!
